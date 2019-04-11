@@ -1,1 +1,1 @@
-# jangotek.tk
+This site is under construction. :)
